@@ -28,8 +28,7 @@
 ---
 
 ## 📫 Let’s Connect
-- LinkedIn: [your LinkedIn URL]  
-- Email: [your.email@example.com]  
-- GitHub Projects: Scroll below ⬇️
+- LinkedIn: [www.linkedin.com/in/ndori-victor-677384278]
+- Email: [victorndori145@gmail.com]
 
 > 🌱 *Motto:* **Tend and Thrive** – Growing through learning, service, and culture.
